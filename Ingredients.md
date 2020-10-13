@@ -16,6 +16,19 @@ FOR THE CHEESECAKE
 2 tbsp. all-purpose flour
 1/4 tsp. kosher salt
 1 c. blueberry puree
+2 Cups Cream cheese
+6 cups Whipped cream
+2 tbsp Gelatin
+3/4 Fresh milk
+4 Egg yolks
+1 cup Sugar
+2 tbsp Vanilla essence
+2 tbsp Lime juice
+1 cup Digestive biscuits (crushed)
+3 tbsp Butter, melted
 FOR TOPPING
 Whipped cream
 Blueberries
+1/2 cup Blueberry filling
+1 tbsp Gelatin
+2 cups Water
